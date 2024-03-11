@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [shorturl.at/hiy57](shorturl.at/hiy57)
 
-- 💬 Ask me about **react, Front end development**
+- 💬 Ask me about **Web development**
 
 - 📫 How to reach me **pkshitij291@gmail.com**
 
