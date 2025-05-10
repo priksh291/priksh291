@@ -3,11 +3,11 @@
 
 - 👨‍💻 All of my projects are available at [shorturl.at/hiy57](shorturl.at/hiy57)
 
-- 💬 Ask me about **Web development**
+- 💬 Ask me about **Software development**
 
 - 📫 How to reach me **pkshitij291@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NxAzCjPGNZiJDQdT4bJonnjTo-8QVs--/view?usp=sharing](https://drive.google.com/file/d/1NxAzCjPGNZiJDQdT4bJonnjTo-8QVs--/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1iNBVqTI0Jin3E3xDtMoH_9ABgF9M4aRP/view?usp=sharing](https://drive.google.com/file/d/1iNBVqTI0Jin3E3xDtMoH_9ABgF9M4aRP/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
